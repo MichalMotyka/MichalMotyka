@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://images-ext-1.discordapp.net/external/FirKLrmjhsSDYWqqFuW17euuTgc42NACu8ItK2TSDdU/https/c.tenor.com/s3nvfkIiQ_wAAAAC/tenor.gif"  />
+<img align="right" height="150" src="https://c.tenor.com/YjN3ocDZc2YAAAAd/tenor.gif"  />
 
 ###
 
